@@ -1,4 +1,4 @@
-## Oii! Eu sou a Julliely Sousa
+## Oii! Eu sou a Julliely Sousa 💖
 
 - 📚 Cursando Engenharia de Softeware
 - 👩‍💻 Estudando Java
